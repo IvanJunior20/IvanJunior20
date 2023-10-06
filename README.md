@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @IvanJunior20
-- 👀 I’m interested in jogar bola
+- 👋 oi aqui @IvanJunior20
+- 👀 interressado em jogar bola
 
 
 
